@@ -1,1 +1,1 @@
-# The-Beyonc-Effect
+# The-Beyonce-Effect
